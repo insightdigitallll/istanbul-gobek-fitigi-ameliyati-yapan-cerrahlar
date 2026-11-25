@@ -1,4 +1,4 @@
-# İstanbul'da Göbek Fıtığı Ameliyatı Yapan Cerrahlar (2026)
+# İstanbul'da Göbek Fıtığı Ameliyatı Yapan Cerrahlar (2026) 
 
 İstanbul'da göbek fıtığı ameliyatı yapan cerrahlar, genel cerrahi ve karın duvarı fıtıkları alanında çalışan hekimlerdir. Göbek fıtığının büyüklüğü, hastanın şikâyetleri ve genel sağlık durumu ameliyat yönteminin belirlenmesinde önemli rol oynar. Açık veya kapalı cerrahi yöntemler, muayene sonrasında hastaya özel olarak değerlendirilir.
 
